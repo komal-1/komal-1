@@ -1,6 +1,6 @@
 ### Hi there 👋, I'm Komal Kumari.
 
-- 🔭 I’m currently working on my skills.
+- 🔭 Trying to better.
 - 🌱 I’m currently learning how to stick to only one thing at a time.
 - 📫 How to reach me:[Twitter - @Perfectenschla6](https://twitter.com/Perfectenschla6).
 - 😄 Pronouns: She/her/Your Highness.
