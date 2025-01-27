@@ -1,4 +1,4 @@
-### Hi there 👋, I'm Komal Kumari.
+### Hi there 👋.
 
 - 🔭 Trying to better.
 - 🌱 I’m currently learning how to stick to only one thing at a time.
